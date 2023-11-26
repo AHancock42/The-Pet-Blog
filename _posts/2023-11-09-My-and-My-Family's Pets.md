@@ -39,7 +39,7 @@ Hobbies: Licking crumbs off the floor, forcefully mothering Cinder, taking off h
 Adopted: 2020, from her foster family after we lost our previous calico
 What she taught me: When it's ok to love again after loss, sometimes people are scary so you need to be gentle with others. Always listen to the cat.
 
-![Buster, the criminal rabbit](/The-Pet-Blog/IMG_3548).jpg)
+![Buster, the criminal rabbit](/The-Pet-Blog/IMG_3548.jpg)
 
 Name: Buster
 Nicknames: Criminal-bun, *Sir* (said respectfully but exasperatedly), hunger-bun
@@ -47,7 +47,7 @@ Hobbies: Committing crimes (eating stuff he's not supposed to), being food-aggre
 Adopted: 2022, because my mom is a self-proclaimed 'crazy bunny lady'
 What he taught me: Always watch out for the small ones, they're the most vicious. Never put anything down that you don't want eaten. Yes, rabbits **can** be criminals
 
-![Num, the teeny soot ball](/The-Pet-Blog/IMG_3549).jpg)
+![Num, the teeny soot ball](/The-Pet-Blog/IMG_3549.jpg)
 
 Name: Num (short for Penumbra)
 Nicknames: Soot gremlin, partner-in-crime, teeny-ears
