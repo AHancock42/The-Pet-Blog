@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Toitle"
+title: "Title"
 ---
 
 Words
