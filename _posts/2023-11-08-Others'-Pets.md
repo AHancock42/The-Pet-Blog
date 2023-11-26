@@ -16,6 +16,7 @@ My friend Cat's cat
 ![Rosie, the friendly girl](/The-Pet-Blog/image000000.jpg)
 
 Name: Rosie
+
 A little about her: She's very friendly, though particular about visitors. She loves cuddling with her person and watching birds out the window, even though she lives in the city.
 
 My (step)grandma's critters
