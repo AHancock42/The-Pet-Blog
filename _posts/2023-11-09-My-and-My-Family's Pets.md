@@ -7,7 +7,7 @@ My Pets
 
 ![Tummy, the fluffy grey cat](/The-Pet-Blog/IMG_3545(1).jpg)
 
-Name: Tummy (past name Lulu)
+Name: Tummy (previously Lulu)
 
 Nicknames: Tummer, Floof, Murderfloof
 
@@ -45,7 +45,7 @@ What he taught me: I helped nurse him back to health, so he taught me what rescu
 
 ![Mira, the calico queen with VERY important opinions](/The-Pet-Blog/IMG_3547.jpg)
 
-Name: Mira (past name Mama)
+Name: Mira (previously Mama)
 
 Nicknames: Mira Mira-cles (like Heracles), chatty chonk, Mistress Mira Many Sounds
 
