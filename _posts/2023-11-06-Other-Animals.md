@@ -1,6 +1,6 @@
 ---
 layout: page
-title: "In Memoriam"
+title: "Other Animals"
 ---
 
 A Post
