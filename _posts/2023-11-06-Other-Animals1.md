@@ -1,6 +1,0 @@
----
-layout: page
-title: "Other Animals"
----
-
-Cows; moo
