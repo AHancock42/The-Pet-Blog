@@ -1,6 +1,6 @@
 ---
 layout: page
-title: "My and My Family's Pets"
+title: "Other Animals"
 ---
 
-My Pets
+Cows; moo
