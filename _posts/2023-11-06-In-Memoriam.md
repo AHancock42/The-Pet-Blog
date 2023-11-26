@@ -32,8 +32,10 @@ A little about her: She was elderly when we adopted her from some coworker's-aun
 Favourite memory: Once I was hanging out with her, and she suddenly looked up at me, blepping out her cute little tongue! It was so cute, and I managed to get a few pictures! She never even realized she was doing it, and only put her tongue back in her mouth when my stepdad booped it!
 
 Hummus, the wise and hungry
+![The most Gandalfish rabbit i've ever known](/The-Pet-Blog/IMG_3575.jpg)
 
+Name: Hummus (also known as Bundalf)
 
+A little about him: We adopted him from the Glenora vet clinic, only a few blocks from my current apartment, after he managed to tear open a bag of dog food and eat his fill. He was known as the rabbit with the cast iron stomach, and regularly lived up to that title.
 
-
-
+Favourite memory: I bought some black licorice for my dad, and stored it under my bed until I was ready to ship it to him. Hummus decided that the only thing to do was climb the stairs, dig out the black licorice, and tear it open and eat it for himself. He turned out fine and unremorseful, and went on to eat other things he really shouldn't have.
