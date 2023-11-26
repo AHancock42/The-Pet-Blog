@@ -3,7 +3,7 @@ layout: page
 title: "Other Animals"
 ---
 
-Sometimes, like when you have parents and grandparents who live on farms, people have animals that aren't pets. Even though they may become food eventually, we still take care of them as best we can and respect them like any other living creature. So, these are the 'pet' honorable mentions.
+Sometimes, like when you have parents and grandparents who live on farms, people have animals that aren't pets. Even though they may become food eventually, we still take care of them as best we can and respect them like any other living creature. So, these are the non-pet honorable mentions.
 
 The Cows (My Parents')
 ![Some cows, black dexters](/The-Pet-Blog/IMG_3560.jpg)![More cows, also dexters](/The-Pet-Blog/IMG_3564.jpg)
