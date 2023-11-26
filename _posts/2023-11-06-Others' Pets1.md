@@ -1,6 +1,6 @@
 ---
 layout: page
-title: "Others' Pets1"
+title: "Others' Pets"
 ---
 
 Melody and Aidan
