@@ -1,2 +1,2 @@
 Tummy, Ronin, etc.
-![Picture of Cinder](/ThePet-Blog/DSCN3443.JPG)
+![Picture of Cinder](/The-Pet-Blog/DSCN3443.JPG)
