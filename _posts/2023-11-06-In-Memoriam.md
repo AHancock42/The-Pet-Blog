@@ -32,6 +32,7 @@ A little about her: She was elderly when we adopted her from some coworker's-aun
 Favourite memory: Once I was hanging out with her, and she suddenly looked up at me, blepping out her cute little tongue! It was so cute, and I managed to get a few pictures! She never even realized she was doing it, and only put her tongue back in her mouth when my stepdad booped it!
 
 Hummus, the wise and hungry
+
 ![The most Gandalfish rabbit i've ever known](/The-Pet-Blog/IMG_3575.jpg)
 
 Name: Hummus (also known as Bundalf)
