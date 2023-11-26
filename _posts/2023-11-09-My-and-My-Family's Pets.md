@@ -41,7 +41,7 @@ Hobbies: Catching mice, birds, voles, everything really, forcefully becoming fri
 
 Adopted: Nope, found him as a kitten stuck under the floorboards of our barn in 2016
 
-What he taught me: I helped nurse him back to health, so he taught me what rescuing cats is like, and what having an outdoor enthusiast cat is like (my parents live in the country so he has plenty of space to roam, but always comes inside at night. 
+What he taught me: I helped nurse him back to health, so he taught me what rescuing cats is like, and what having an outdoor enthusiast cat is like (my parents live in the country so he has plenty of space to roam, but always comes inside at night.
 
 ![Mira, the calico queen with VERY important opinions](/The-Pet-Blog/IMG_3547.jpg)
 
@@ -64,7 +64,7 @@ Hobbies: Committing crimes (eating stuff he's not supposed to), being food-aggre
 
 Adopted: 2022, because my mom is a self-proclaimed 'crazy bunny lady'
 
-What he taught me: Always watch out for the small ones, they're the most vicious. Never put anything down that you don't want eaten. Yes, rabbits **can** be criminals
+What he taught me: Always watch out for the small ones, they're the most vicious. Never put anything down that you don't want eaten. Yes, rabbits **can** be criminals.
 
 ![Num, the teeny soot ball](/The-Pet-Blog/IMG_3549.jpg)
 
@@ -76,4 +76,4 @@ Hobbies: Being an accomplice to crime, having invisible ears, stuffing his entir
 
 Adopted: June of 2023, his previous owners didn't know how to take care of him :(
 
-What he taught me: Small doesn't mean innocent, you can find friends in unlikely places
+What he taught me: Small doesn't mean innocent, you can find friends in unlikely places.
