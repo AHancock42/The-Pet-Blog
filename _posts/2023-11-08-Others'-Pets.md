@@ -3,4 +3,4 @@ layout: page
 title: "Others' Pets"
 ---
 
-Melody and Aidan
+My friends', Melody and Aidan's cats
