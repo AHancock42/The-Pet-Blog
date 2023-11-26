@@ -13,6 +13,6 @@ These are 'The Cows', black dexters and dexter-angus crosses. My parents have a 
 Grandma's chickens
 ![Hatching chicks](/The-Pet-Blog/IMG_3567.jpg)![Newborn chicks](/The-Pet-Blog/IMG_3568.jpg)![Teen chickens under heat lamp](/The-Pet-Blog/IMG_3570.jpg)
 
-Here are some of my grandma's chickens, very cute, very clucky, and well, also very tasty. They tend to like caterpillars, blueberries, and grapes.
+Here are some of my grandma's chickens, very cute, very clucky, and well, also very tasty. They tend to like caterpillars, blueberries, and grapes. Honestly, some of the best chicken I've tasted, but my grandma does have a gift with food.
 
 
