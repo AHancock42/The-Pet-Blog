@@ -4,7 +4,9 @@ title: "My and My Family's Pets"
 ---
 
 My Pets
+
 ![Tummy, the fluffy grey cat](/The-Pet-Blog/IMG_3545(1).jpg)
+
 Name: Tummy (past name Lulu)
 Nicknames: Tummer, Floof, Murderfloof
 Hobbies: Sleeping in my sock drawer, being annoyed at her new roommate Ronin, being a scaredy-floof
