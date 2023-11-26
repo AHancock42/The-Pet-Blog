@@ -1,6 +1,6 @@
 ---
 layout: page
-title: "hmmm"
+title: "Others' Pets"
 ---
 
 Cows; moo
