@@ -1,6 +1,6 @@
 ---
 layout: page
-title: "My and My Family's Pets"
+title: "Others' Pets1"
 ---
 
-My Pets
+Melody and Aidan
