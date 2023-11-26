@@ -23,9 +23,3 @@ My (step)grandma's critters
 
 Names: We'en (short for Hallowe'ener), Scamper, Bogo (yes, **that** BOGO), and Cookie
 A little about them: We'en showed up at my grandma's house one day, cold and looking for food. They 'weren't going to keep him', but since he was cold they *had* to put him in the garage and... we all know how the story goes. After my grandma accepted that a lost critter wandering by her house was going to be adopted, Scamper wandered by her house, and was adopted! But the story doesn't end there; even though she was tiny and barely older than a kitten herself, a few days after they took her in, my grandma found her in a bag of yarn, having just given birth to a tiny black kitten! Thus Bogo was born, buy-one-get-one, eh? Now, he's a **huge** black, fluffy kitten that's probably twice the size of his mom, and big scaredy cat to his mom's tiny yet vicious predator. I couldn't find a picture of my grandma's last pet, who is a giant black-and-white newfie dog named Cookie, but she's a very good dog (even if she sometimes puts her head on the table to try and steal food off the table).
-
-
-
-
-
-
